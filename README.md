@@ -84,9 +84,8 @@ Let’s connect and create something amazing together! 🚀
 
 📫 How to Reach Me
 
-📧 Email: Arvind VIjay 
+📧 Email: arvindvijay09@gmail.com
 🔗 LinkedIn: https://www.linkedin.com/in/arvind-vijay-6b0629182/
-🐦 Twitter: 
 🌐 Website/Portfolio: 
 
 Let’s innovate and build together! 😃🚀
